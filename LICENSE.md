@@ -1,4 +1,4 @@
-# 
+# vip OBS Studio for PC | OBS Studio for Windows Preset | bitrate-control + audio-mixing offers the most advanced OBS Studio for PC | OBS Studio for Windows preset, with
 
 
 
